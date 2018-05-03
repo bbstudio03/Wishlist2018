@@ -19,4 +19,4 @@ If they are in bold I really want them.
 * http://www.amzn.to/2j2gYxW SOG credit card multi tool
 * ## https://www.amazon.com/SOG-Instinct-Fixed-Blade-NB1012-CP/dp/B00T3QBY7A SOG instinct
 * https://www.amazon.com/Elite-Survival-Systems-Riggers-Buckle/dp/B00K96RH0G/ref=as_li_ss_tl?ie=UTF8&qid=1487351741&sr=8-1&keywords=Elite%2BCobra%2BRiggers%2BBelt&linkCode=sl1&tag=ss-survivalbelts-20&linkId=65a8c36c3a01b876082538aba3235a30&th=1&psc=1#productDescription_secondary_view_div_1523902514961 A Belt
-https://www.amazon.co.uk/Lokko-Credit-Lockpick-Training-Padlocks/dp/B01J1QRK7Y lock picking set
+* https://www.amazon.co.uk/Lokko-Credit-Lockpick-Training-Padlocks/dp/B01J1QRK7Y lock picking set
