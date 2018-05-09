@@ -14,9 +14,9 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * Adventures of Tintin books volume 2-7
 * Asterix comics (I have the Asterix comic about Cleopatra)
 * Rangers Apprentice books 5-12
-* SAS Survival Handbook, Third Edition https://www.amazon.com/SAS-Survival-Handbook-Third-Surviving/dp/0062378074/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1492527422&sr=1-1
-* 100 Deadly skills
-* 100 Deadly skills survival edition
+* 1 SAS Survival Handbook, Third Edition https://www.amazon.com/SAS-Survival-Handbook-Third-Surviving/dp/0062378074/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1492527422&sr=1-1
+* 2 100 Deadly skills
+* 3 100 Deadly skills survival edition
 * ## Outdoor
 * 2nd Casio survival watch https://www.amazon.com/Casio-PAG240-1CR-Pathfinder-Triple-Multi-Function/dp/B003URP7NK/ref=as_li_ss_tl?ie=UTF8&qid=1488049943&sr=8-1&keywords=gshock+protrek&linkCode=sl1&tag=survivalwatchfortress-20&linkId=9a1b61432a7d58a08e69bf362bf28717
 *  A strong Belt https://www.amazon.com/Klik-Belts-Tactical-Release-Buckle/dp/B07CF7KT31/ref=pd_aw_sbs_200_2?_encoding=UTF8&refRID=E0Y2YP6FQ45K4C2MCE2Q&th=1&psc=1 A strong Belt
@@ -28,6 +28,6 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * Paracord https://www.amazon.com/Paracord-Planet-Cord-Type-Strand/dp/B00E63091M/ref=sr_1_3?s=sporting-goods&ie=UTF8&qid=1525647349&sr=1-3&keywords=paracord%2B550&th=1&psc=1
 * Gerber multi-tool https://www.amazon.com/Gerber-Center-Drive-Multi-Tool-Sheath-30-001194/dp/B01LX91NIU
 * ## Other stuff
-* Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html# (This one uses 12g bb's)
-* Amazon gift card
-* lock picking set https://www.amazon.co.uk/Lokko-Credit-Lockpick-Training-Padlocks/dp/B01J1QRK7Y
+* 3 Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html# (This one uses 12g bb's)
+* 2 Amazon gift card
+* 1 lock picking set https://www.amazon.co.uk/Lokko-Credit-Lockpick-Training-Padlocks/dp/B01J1QRK7Y
