@@ -23,7 +23,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * Throwing knife https://www.amazon.com/GH2033-Gil-Hibben-Competition-Throwing/dp/B000BYN4DA
 * 3rd Pocket knife https://www.amazon.com/dp/B001EIE97W/ref=olp_product_details?_encoding=UTF8&me=
 * 2nd Nitecore MH10 https://www.amazon.com/Nitecore-MH10-Rechargeable-Flashlight-Tactical/dp/B00T1AEO70
-* Tactical pen https://www.amazon.com/Gerber-Impromptu-Tactical-Black-31-001880/dp/B00B0BD3W0
+* Tactical pen https://www.amazon.com/gp/product/B00BO2EXXI/ref=as_at/?imprToken=UZPMO3OlTObn6YBDX4C1uQ&slotNum=9&ie=UTF8&camp=1789&creative=9325&creativeASIN=B00BO2EXXI&linkCode=w61&tag=gearmoose-20
 * SOG credit card multi tool http://www.amzn.to/2j2gYxW
 * 1st SOG instinct https://www.amazon.com/SOG-Instinct-Fixed-Blade-NB1012-CP/dp/B00T3QBY7A
 * Paracord https://www.amazon.com/Paracord-Planet-Cord-Type-Strand/dp/B00E63091M/ref=sr_1_3?s=sporting-goods&ie=UTF8&qid=1525647349&sr=1-3&keywords=paracord%2B550&th=1&psc=1
@@ -35,3 +35,4 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * ## $100+ 
 Casio survival watch https://www.amazon.com/Casio-PAG240-1CR-Pathfinder-Triple-Multi-Function/dp/B003URP7NK/ref=as_li_ss_tl?ie=UTF8&qid=1488049943&sr=8-1&keywords=gshock+protrek&linkCode=sl1&tag=survivalwatchfortress-20&linkId=9a1b61432a7d58a08e69bf362bf28717
 * Leatherman Tread https://www.amazon.com/dp/B018IOY0JG/ref=twister_B077QM1XBN?_encoding=UTF8&th=1
+* InReach Mini https://buy.garmin.com/en-US/US/p/592606
