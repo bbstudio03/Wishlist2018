@@ -25,6 +25,8 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * 1st SOG instinct https://www.amazon.com/SOG-Instinct-Fixed-Blade-NB1012-CP/dp/B00T3QBY7A
 * Paracord https://www.amazon.com/Paracord-Planet-Cord-Type-Strand/dp/B00E63091M/ref=sr_1_3?s=sporting-goods&ie=UTF8&qid=1525647349&sr=1-3&keywords=paracord%2B550&th=1&psc=1
 * Gerber multi-tool https://www.amazon.com/Gerber-Center-Drive-Multi-Tool-Sheath-30-001194/dp/B01LX91NIU
+* Multi-tool Axe https://www.amazon.com/Off-Grid-Tools-OGT-SA100-Multitool-Made/dp/B071L71KXZ?th=1
+* Scosche RHYTHM+ https://www.amazon.com/Scosche-RHYTHM-Heart-Monitor-Armband/dp/B00JQHTJS2?th=1
 * ## Other stuff
 * 3rd Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html# (This one uses 12g bb's)
 * 2nd Amazon gift card
