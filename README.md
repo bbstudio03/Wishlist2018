@@ -16,6 +16,9 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * 1nd 100 Deadly skills
 * 2rd 100 Deadly skills survival edition
 * ## Outdoor
+* Survival Tabs https://www.amazon.com/dp/B00S5ENGU4?tag=survivalmastery-20
+* Protein powder
+* Stuff like this (energy-gels-chews-and-bars-for-running) https://www.verywellfit.com/energy-gels-chews-and-bars-for-running-2911569
 * E&E kit https://www.amazon.com/ITS-Tactical-Urban-Kit/dp/B076QZ19ZM
 * Throwing knife https://www.amazon.com/GH2033-Gil-Hibben-Competition-Throwing/dp/B000BYN4DA
 * 2nd Nitecore MH10 https://www.amazon.com/Nitecore-MH10-Rechargeable-Flashlight-Tactical/dp/B00T1AEO70
