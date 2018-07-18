@@ -28,6 +28,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * Protein powder
 * Stuff like this (energy-gels-chews-and-bars-for-running) https://www.verywellfit.com/energy-gels-chews-and-bars-for-running-2911569
 * Radio https://www.amazon.com/Sangean-MMR-88-Emergency-Flashlight-Smartphone/dp/B00OJZOOLI/ref=as_li_ss_tl?ie=UTF8&qid=1489644950&sr=8-1&keywords=sangean%2Bmmr-88&linkCode=sl1&tag=survivalradiofortress-20&linkId=cf0583f9578ece3b42b5e2406c68f27f&th=1
+* knife sharpener https://www.amazon.com/dp/B000Q9C4AE?tag=bfjeff-20&ascsubtag=4585415%2C14%2C21%2Cmobile_web%2C0%2C0
 * ## Other stuff
 * 3rd Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html# (This one uses 12g bb's)
 * 2nd Amazon gift card
