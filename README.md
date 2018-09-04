@@ -15,6 +15,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * (1st Option) 100 Deadly skills
 * 100 Deadly skills survival edition
 * (2nd Option) Auto repair and Maintenance manual https://www.amazon.com/Auto-Repair-Maintenance-Idiots-Guides/dp/1615647627/ref=pd_sbs_14_2?_encoding=UTF8&pd_rd_i=1615647627&pd_rd_r=42f61c6b-7e87-11e8-94ae-afa43e489d2c&pd_rd_w=AlEvV&pd_rd_wg=9liCs&pf_rd_i=desktop-dp-sims&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=5825442648805390339&pf_rd_r=J5GEGRECS6YQYQJVA38R&pf_rd_s=desktop-dp-sims&pf_rd_t=40701&psc=1&refRID=J5GEGRECS6YQYQJVA38R&dpID=51J3KwzfiuL&preST=_SX218_BO1,204,203,200_QL40_&dpSrc=detail
+* How Bad Do You Want It? https://www.amazon.com/How-Bad-You-Want-Psychology/dp/1937715418
 
 * ## Outdoor/Survival Equipment
 * Throwing knife https://www.amazon.com/GH2033-Gil-Hibben-Competition-Throwing/dp/B000BYN4DA
@@ -26,6 +27,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * (1st Option) Scosche RHYTHM+ https://www.amazon.com/Scosche-RHYTHM-Heart-Monitor-Armband/dp/B00JQHTJS2?th=1
 * Protein powder
 * Stuff like this (energy-gels-chews-and-bars-for-running) https://www.verywellfit.com/energy-gels-chews-and-bars-for-running-2911569
+* Bodyweight cables https://www.amazon.com/Bodyweight-Resistance-Training-Complete-Workouts/dp/B078VW7BMZ
 
 * ## For My BOB
 * (2nd Option) Survival Tabs https://www.amazon.com/dp/B00S5ENGU4?tag=survivalmastery-20
@@ -47,7 +49,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * snowboading boots
 
 * ## Other stuff
-* (1st Option) Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html# (This one uses 12g bb's)
+* (1st Option) Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html (This one uses 12g bb's)
 * (2nd Option) Amazon gift card
 
 * ## $100+ 
