@@ -51,6 +51,7 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * ## Other stuff
 * (1st Option) Airsoft Guns pistols https://www.hobbytron.com/SpringLicensedSmithWessonMP40FPS302AirsoftPistol.html (This one uses 12g bb's)
 * (2nd Option) Amazon gift card
+* USB DVD reader https://www.amazon.com/ZenDrive-External-Optical-Support-BackItUp/dp/B01A27IUUM/ref=as_at?creativeASIN=B01A27IUUM&linkCode=w61&imprToken=mfIcx2eek1u12GVOCzyjag&slotNum=7&tag=easypcmodgact-20
 
 * ## $100+ 
 * Leatherman Tread https://www.amazon.com/dp/B018IOY0JG/ref=twister_B077QM1XBN?_encoding=UTF8&th=1
